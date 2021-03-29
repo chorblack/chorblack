@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @chorblack
-- 👀 I’m interested in 涩图
-- 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on 
+- 👀 I’m interested in (⊙x⊙;)
+- 🌱 I’m currently learning (ಥ_ಥ)
+- 💞️ I’m looking to collaborate on (-_-) zzz
 - 📫 How to reach me 
 
 <!---
