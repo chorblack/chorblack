@@ -1,8 +1,4 @@
-- 👋 Hi, I’m @chorblack
-- 👀 I’m interested in (⊙x⊙;)
-- 🌱 I’m currently learning (ಥ_ಥ)
-- 💞️ I’m looking to collaborate on (-_-) zzz
-- 📫 How to reach me 
+🤔我无话可说🤔
 
 <!---
 chorblack/chorblack is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
